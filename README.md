@@ -6,3 +6,18 @@ Short Afternoon Project
 [|BEER|
 
 Supposed to be a beer glass. I tried my best.
+
+What do you call a goat on a mountain?
+A Hillbilly
+
+What do you call a goat listening to country music? 
+Billy Ray Cyrus
+
+Q: How does a German physicist drink beer?
+A: With ein Stein.
+
+^Wow that one is super duper funny haha.
+Q: What was Schrödinger's favorite movie genre?
+A: ψ Φ
+
+^Hahaha I'm running out of ideas.
