@@ -17,3 +17,7 @@ Q: How does a German physicist drink beer?
 A: With ein Stein.
 
 ^Wow that one is super duper funny haha.
+Q: What was Schrödinger's favorite movie genre?
+A: ψ Φ
+
+^Hahaha I'm running out of ideas.
